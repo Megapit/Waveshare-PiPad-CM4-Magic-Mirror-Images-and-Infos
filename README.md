@@ -1,0 +1,1 @@
+# Waveshare-PiPad-CM4-Magic-Mirror-Images-and-Infos
